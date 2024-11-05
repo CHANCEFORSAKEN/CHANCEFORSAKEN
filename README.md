@@ -1,5 +1,4 @@
-## Hi there 👋
-
+HI! we may be offtab a lot so w2i us!! c+h is very appreciated we're usually kind of lonely at times :').
 <!--
 **baseballii/baseballii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
