@@ -1,4 +1,25 @@
-HI! we may be offtab a lot so w2i us!! c+h is very appreciated we're usually kind of lonely at times :'). we're in multiple fandoms, but our current interests are regretevator, blocktales, the robloxia until dawn, phighting and object shows! this github is mostly for pony town and all. more info at strawpage! XD
+# Hello there! Want a quick introduction about us? Well your in luck today! 　 ★
+- - -
 
+![Image Alt](https://github.com/baseballii/baseballii/blob/9abeb2f6c8edc83c1d3453a944f2c87198cbce63/tumblr_943fbedaf1bd37679f683100e794ccff_2e25a182_1280.png)
 
-![Image Alt](https://github.com/baseballii/baseballii/blob/716702fabbf36ab018848c3dbe954ae9ee3b3a7c/Screenshot%202024-11-05%204.38.42%20PM.png)
+- The host's name is Flint! Other names are Computer and Daph. You can call our host nicknames, of course. We're a system of 34!
+
+┈ 　 Ask us for our specific pronouns!
+
+♡⠀ Our current interests are Regretevator, Phighting, The Robloxia: Until Dawn, BlockTales and Object Shows.⠀◞
+
+![Image Alt](https://github.com/baseballii/baseballii/blob/2146504c32b02f04322bac3e057fd8c759a343dd/Untitled537_20241106185639.png)
+
+◠◠  　 We do play other games and watch other shows! We take interest in Murder Drones.
+  　 
+★
+  　 
+╱⠀⠀ Free to interact! We also very appreciate c+h, most of the times we're lonely.
+
+![Image Alt](https://github.com/baseballii/baseballii/blob/06e4eea5e7ea6aa7d37e2c7383793b7d8e9fd673/Untitled538_20241106190338.png)
+
+# *୨୧    Have a fantastic day!*
+
+![Image Alt](https://github.com/baseballii/baseballii/blob/9abeb2f6c8edc83c1d3453a944f2c87198cbce63/tumblr_943fbedaf1bd37679f683100e794ccff_2e25a182_1280.png)
+- - -
