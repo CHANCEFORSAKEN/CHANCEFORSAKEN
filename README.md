@@ -3,7 +3,7 @@
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/9abeb2f6c8edc83c1d3453a944f2c87198cbce63/tumblr_943fbedaf1bd37679f683100e794ccff_2e25a182_1280.png)
 
-- The host's name is Flint! Other names are Computer and Daph. You can call our host nicknames, of course. We're a system of 34!
+- The host's name is Flint! Other names are Computer and Daph. You can call our host nicknames, of course. We're a system of 34! skins that are apart of our system will have the word SYS.
 
 ┈ 　 Ask us for our specific pronouns!
 
