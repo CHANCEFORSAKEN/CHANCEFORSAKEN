@@ -20,7 +20,10 @@
 ![Image Alt](https://github.com/baseballii/baseballii/blob/06e4eea5e7ea6aa7d37e2c7383793b7d8e9fd673/Untitled538_20241106190338.png)
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/0f0b75e9cb73dcf6bcf6e9c28fbafcd6c0c2089e/Untitled72_20241110140500.webp)
-*graphic made by my friend!*
+*graphic made by our friend!*
+
+![Image Alt](https://github.com/baseballii/baseballii/blob/3956774dcd93bd7da206afe9512fa86902529239/ezgif-3-cb36e49897.gif) ![Image Alt](https://github.com/baseballii/baseballii/blob/3956774dcd93bd7da206afe9512fa86902529239/ezgif-6-c2a21c97d3.gif)
+*buttons made by our friend again! credits to them <3*
 
 # *୨୧    Have a fantastic day!*
 
