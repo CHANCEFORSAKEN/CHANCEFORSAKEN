@@ -15,7 +15,7 @@
   　 
 ★
   　 
-╱⠀⠀ Free to interact! We also very appreciate c+h, most of the times we're lonely.
+╱⠀⠀ Free to interact! We also very appreciate c+h, most of the times we're lonely. Our style in pony making can change time to time, so if we used your style, then we truly apologize!
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/06e4eea5e7ea6aa7d37e2c7383793b7d8e9fd673/Untitled538_20241106190338.png)
 
