@@ -3,11 +3,11 @@
   　   　   　   　   　   　   　   　   　   　   　  　  ![Image Alt](https://github.com/baseballii/baseballii/blob/69cff27081914d6c8532c61e38ae4baf2e2d7776/tumblr_ea2523c401e71f693e4e95c78e69ae9e_4e9c118c_540.png)
 
 
-  　   　   　 - The host's name is Flint. Other names are Computer and Daph. You can call our host nicknames, of course. A system of 30+,   　   　     　   　 　   　   　   　 skins that are apart of our system will have the word SYS in it. Sometimes we are forgetful, so correct us.
+  　   　   - The host's name is Flint. Other names are Computer and Daph. You can call our host nicknames, of course. A system of 30+,   　   　     　   　 　   　   　   　 skins that are apart of our system will have the word SYS in it. Sometimes we are forgetful, so correct us.
 
   　   　   　   　   　   　 ┈ 　 Ask us for our specific pronouns.
 
-  　   　   　   　   　 ♡⠀ Our current interests are Regretevator, Phighting, AVM/AVA, BlockTales and Object Shows. More info on PRNS.CC⠀◞
+  　   　   　   　   ♡⠀ Our current interests are Regretevator, Phighting, AVM/AVA, BlockTales and Object Shows. More info on PRNS.CC⠀◞
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/69cff27081914d6c8532c61e38ae4baf2e2d7776/Untitled643_20241220114735.png)
 
