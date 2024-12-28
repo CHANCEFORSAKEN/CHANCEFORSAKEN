@@ -7,7 +7,7 @@
 
   　   　   　   　   　   　 ┈ 　 Ask us for our specific pronouns.
 
-  　   　   　   　   ♡⠀ Our current interests are Regretevator, Phighting, AVM/AVA, BlockTales and Object Shows. More info on PRNS.CC⠀◞
+  　   　   　   　   ♡⠀ Our current interests are Regretevator, Phighting, AVM/AVA, and BlockTales. More info on PRNS.CC⠀◞
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/69cff27081914d6c8532c61e38ae4baf2e2d7776/Untitled643_20241220114735.png)
 
