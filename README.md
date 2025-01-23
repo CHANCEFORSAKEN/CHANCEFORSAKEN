@@ -17,7 +17,7 @@
   　 
 ╱⠀⠀ Free to interact! We also very appreciate c+h, most of the times we're lonely. You can c+h us unless we stated or have dni in our name. Our style in pony making can change time to time, so if we used your style, then we truly apologize! We also like experimenting with our colors.
 
- 　  　  　  　  　 　  　  　  　  　  　  　  　  　  [ATABOOK](https://solemonium.atabook.org/) [STRAWPAGE](https://pinkfumesphight.straw.page/) [PRNS.CC](https://pronouns.cc/@solemonium)
+ 　  　  　  　  　 　  　  　  　  　  　  　  　  　  [ATABOOK](https://solemonium.atabook.org/) [STRAWPAGE](https://chanceforsaken.straw.page/) [PRNS.CC](https://pronouns.cc/@solemonium)
 
 ![Image Alt](https://github.com/baseballii/baseballii/blob/2e80bd9ffe3fbf99c97d34408742865aef0e7bbb/Untitled645_20241220121123.png)
 
