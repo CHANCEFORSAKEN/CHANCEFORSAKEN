@@ -11,5 +11,7 @@ no dni, just be nice and awesome. dont be a weirdo i will block you.ㅤㅤㅤㅤ
 
 ships can int, and c*h is always fine! i wouldn't mind you sitting by me even if im on iwc. ㅤㅤㅤyou can ask me for my discord always ^^
 
+@V1neStaff1ngReal @jobless-monday @MedicalMeltdown my lovely close friends ^^ love you guysss /p
+
 ㅤㅤㅤㅤㅤㅤ★ㅤㅤㅤㅤㅤㅤ[atabook](https://solemonium.atabook.org/) [strawpage](https://chanceforsaken.straw.page/) [prns.page](https://en.pronouns.page/@chanceforsaken)
 ![Image Alt](https://github.com/CHANCEFORSAKEN/CHANCEFORSAKEN/blob/2130051302ca01edf9cb8bdd1d5b39b5f8e89e68/tumblr_96f81a29f0aafdda452fa07e8dca7267_c25d3cc7_2048.png)
