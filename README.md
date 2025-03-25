@@ -9,7 +9,7 @@
 no dni, just be nice and awesome. dont be a weirdo i will block you.ㅤㅤㅤㅤi cant approach people properly but i would love to be friends with you i promise im cool!! i just dont know how to approach people and stuff so yeah.ㅤㅤㅤㅤmy style on drawing/making skins can change a lotㅤㅤㅤㅤforsaken fandom interact with caution some of yall r weirdㅤㅤㅤㅤour headmates dont really talk on ponytown so its just me on the website. they're only active on discord
 
 
-ships can int anytime unless specified, and c*h is always fine! i wouldn't mind you sitting by me even if im on iwc. ㅤㅤㅤyou can ask me for my discord always ^^
+ships can int anytime unless specified, and c*h is always fine! i wouldn't mind you sitting by me even if im on iwc. ㅤㅤㅤyou can ask me for my discord always ^^ ㅤㅤㅤOUTLAWS OF ROBLOXIA FANS INT PLSSSSSSSS
 
 [@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pygmaIion](https://github.com/pygmaIion) [@ATTACKINGVERTICAL](https://github.com/ATTACKINGVERTICAL) my lovely close friends ^^ love you guysss /p
 
