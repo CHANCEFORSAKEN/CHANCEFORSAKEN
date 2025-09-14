@@ -4,6 +4,6 @@ $\color{#9e3f2c}{art~ by~ me~}$
 no dni, whisper to interact(im nice) + c\*h is fineㅤㅤㅤㅤdo not copy my skins, light insp ask in whispㅤㅤㅤㅤ*system,* 50+ headmatesㅤㅤㅤㅤ
 $\color{#74913f}{multifandom,~ into~ crk~ rn~}$
 
-ㅤㅤㅤㅤㅤㅤ[atabook](https://firewind.atabook.org/) [main strawpage](https://sparklingbutter.straw.page/) [prns.page](https://en.pronouns.page/@chanceforsaken)
+ㅤㅤㅤㅤㅤㅤ[atabook](https://firewind.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.page](https://en.pronouns.page/@chanceforsaken)
 
 ㅤㅤㅤㅤ[@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pygmaIion](https://github.com/pygmaIion) [@FracturedSpawn](https://github.com/FracturedSpawn) 𝓱𝓲 𝓼𝓽𝓲𝓷𝓴𝓲𝓮𝓼...
