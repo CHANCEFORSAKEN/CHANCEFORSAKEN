@@ -1,8 +1,7 @@
-![Image Alt](https://github.com/ETERNAL-FL4ME/ETERNAL-FL4ME/blob/8b0d1f1c0ca8b625752c20c2a460d412509790dc/Untitled2_20250508181442.png)
-$\color{#9e3f2c}{art~ by~ me~}$
+![Image Alt](https://github.com/CHANCEFORSAKEN/CHANCEFORSAKEN/blob/dad2495420095bf626573eb87b421bc0464955c0/Untitled40_20250914133909.png)
+$\color{#452e46}{I~ AM~ THE~ COURT~ 𝓙ESTER!~}$
 
-no dni, whisper to interact(im nice) + c\*h is fineㅤㅤㅤㅤdo not copy my skins, light insp ask in whispㅤㅤㅤㅤ*system,* 50+ headmatesㅤㅤㅤㅤ
-$\color{#74913f}{multifandom,~ into~ crk~ rn~}$
+ㅤㅤㅤㅤc*h appreciated ^_^ㅤㅤㅤㅤwhisp2int!ㅤㅤㅤㅤdon't be afraid to approach me, i love making new friends ^.^~
 
 ㅤㅤㅤㅤㅤㅤ[atabook](https://firewind.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.page](https://en.pronouns.page/@chanceforsaken) strawpage outdated but idgaf
 
