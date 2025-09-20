@@ -3,6 +3,6 @@ $\color{#452e46}{I~ AM~ THE~ COURT~ 𝓙ESTER!~}$
 
 ㅤㅤㅤㅤc*h appreciated ^_^ㅤㅤㅤㅤwhisp2int!ㅤㅤㅤㅤdon't be afraid to approach me, i love making new friends ^.^~
 
-ㅤㅤㅤㅤㅤㅤ[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.page](https://en.pronouns.page/@chanceforsaken) strawpage outdated but idgaf
+ㅤㅤㅤㅤㅤㅤ[atabook](https://elliotspizza.atabook.org/) [main strawpage](https://chanceforsaken.straw.page/) [prns.cc](https://pronouns.cc/@chanceforsaken) strawpage outdated but idgaf
 
 ㅤㅤㅤㅤ[@V1neStaff1ngReal](https://github.com/V1neStaff1ngReal) [@pygmaIion](https://github.com/pygmaIion) [@FracturedSpawn](https://github.com/FracturedSpawn) 𝓱𝓲 𝓼𝓽𝓲𝓷𝓴𝓲𝓮𝓼...
