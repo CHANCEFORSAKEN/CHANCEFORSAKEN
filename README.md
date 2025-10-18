@@ -1,7 +1,10 @@
-![Image Alt](https://github.com/CHANCEFORSAKEN/CHANCEFORSAKEN/blob/dad2495420095bf626573eb87b421bc0464955c0/Untitled40_20250914133909.png)
-$\color{#452e46}{I~ AM~ THE~ COURT~ 𝓙ESTER!~}$
-
 <div align="center">
+
+
+![Image Alt](https://github.com/CHANCEFORSAKEN/CHANCEFORSAKEN/blob/d583edb1a2da28be528e4f38ac7e3512736ce61d/Untitled817_20251018182809.webp)
+
+$\color{#38eb97}{Always~ an~ angel,~ never~ a~ god.~}$
+
 
 <img width="70" src="https://komarev.com/ghpvc/?username=CHANCEFORSAKEN&color=005441&label=ichor">
 
