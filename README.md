@@ -1,6 +1,6 @@
 <div align="center">
 
-<img align="center" width="600" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/ca35b73c883fbee295a8323c689f434bd2072946/Untitled146_20260825190330(1).gif">
+<img align="center" width="500" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/ca35b73c883fbee295a8323c689f434bd2072946/Untitled146_20260825190330(1).gif">
 
  
 
