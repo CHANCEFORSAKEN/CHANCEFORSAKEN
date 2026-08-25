@@ -41,6 +41,6 @@ $${\color{#7d496f}\text{ᢉ𐭩}}$$
 [guns.lol](https://guns.lol/aregectze) [atabook](https://atabook.org/crimsonrodamrix)
 
 </p>
-</td> <img align="left" width="400" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/29c659938312e830c8a3e3ee059352f61b098c09/PurpleCrewmate.gif">
+</td> <img align="left" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/29c659938312e830c8a3e3ee059352f61b098c09/PurpleCrewmate.gif">
 
 </details>
