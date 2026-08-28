@@ -38,7 +38,7 @@ $${\color{#e8ecd8}\text{UMMM no strawpage yet im still working on ir sowwy}}$$
 
 $${\color{#7d496f}\text{ᢉ𐭩}}$$
 
-[guns.lol](https://guns.lol/aregectze) [atabook](https://atabook.org/crimsonrodamrix)
+[guns.lol](https://guns.lol/aregectze) [atabook](https://crimsonrodamrix.atabook.org/)
 
 </p>
 </td> <img align="left" width="300" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/29c659938312e830c8a3e3ee059352f61b098c09/PurpleCrewmate.gif">
