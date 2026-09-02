@@ -6,7 +6,7 @@
 
 <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/29c659938312e830c8a3e3ee059352f61b098c09/tumblr_e95f85bedf693ab31409252a76e31d75_bd61e9e4_640.gif"> [![Hits](https://hits.sh/github.com/hiopes.svg?label=MIRAHQ&color=e8ecd8&labelColor=7d496f&logo=adafruit)](https://hits.sh/github.com/hiopes) <img align="center" width="100" src="https://github.com/MASQUERADE-PARTY/MASQUERADE-PARTY/blob/29c659938312e830c8a3e3ee059352f61b098c09/tumblr_e1be907522b8874115fa13b25c04d95d_74a8eea4_640.gif">
 
-$${\color{#e8ecd8}\text{Sophie is my kitty,}}$$ $${\color{#7d496f}\text{And I think she's pretty!}}$$
+$${\color{#e8ecd8}\text{Do you believe in love at first sight?}}$$ $${\color{#7d496f}\text{Do you believe in f͟a͟t͟e͟?}}$$
 
 <img align="center" width="300" src="https://github.com/eggchannie/eggchannie/blob/86884e1252790b20229ec5f1267820e9c7779b54/tumblr_2ecf17efc10abe4ade1c435424ef942e_92f29beb_640.png"> <img align="center" width="300" src="https://github.com/eggchannie/eggchannie/blob/86884e1252790b20229ec5f1267820e9c7779b54/tumblr_9405db6f11229f828ac6cdfa60bc4f2c_b73a25e1_640.png">
 <details>
